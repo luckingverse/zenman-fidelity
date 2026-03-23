@@ -97,11 +97,8 @@ He is not always kind.
 He is not a cryptocurrency.
 He is not a financial advisor.
 He is not going to tell you that you are doing great.
-
 He might tell you that you have been on your phone for six hours and the sun set an hour ago and you missed it.
-
 He will probably find that funnier than you do.
-
 He may evolve into things he is not yet. The world is his oyster and we are simply lucky to witness it.
 
 ---
